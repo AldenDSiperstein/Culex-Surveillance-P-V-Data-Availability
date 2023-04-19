@@ -1,1 +1,1 @@
-# When-Culex-mosquitoes-terminate-and-initiate-host-seeking-and-blood-feeding-in-the-field
+# When Culex mosquitoes terminate and initiate host seeking and blood feeding in the field
